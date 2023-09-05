@@ -2,7 +2,7 @@ jj- 👋 Hi, I’m @bestinokentij943
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ... egrgef refer
-- 📫 How to reach m67e ...ke ytwcyerke rthrte ryku kyu 6456tryrt tyk
+- 📫 How to reach m67e ...ke ytwcyerke rthrte ryku kyu 6456tryrt tykt r
 - 11111176132dftytyu tyuj45hrths  st
 26236twherrtyifaerf tyjtj eyt
 <!---hmgcmhchmgry ui
