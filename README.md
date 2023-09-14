@@ -1,7 +1,7 @@
 jj- 👋 Hi, I’m @bestinokentij943
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...j 6556 56j5tj5e
-- 💞️ I’m looking to collaborate on ... egrgef referh trhrth5h 56jhg hkmty teyk
+- 💞️ I’m looking to collaborate on ... egrgef referh trhrth5h 56jhg hkmty teyku 356u5634f 
 - 📫 How to reach m67e ...ke ytwcyerke rthrte ryku kyu 6456tryrt tykt r yrtyr herth reth tre
 - 11111176132dftytyu tyuj45hrths  sth rtssrth rhd
 26236twherrtyifaerf tyjtj eyt
